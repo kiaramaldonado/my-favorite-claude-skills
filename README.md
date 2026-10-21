@@ -1,0 +1,1 @@
+# my-favorite-claude-skills
